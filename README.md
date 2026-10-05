@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  <a href="https://boss974829.github.io/Maximize-Your-Freedom/"><strong>Open the course</strong></a>
+  <a href="https://boss974829.github.io/maximize-your-freedom/"><strong>Open the course</strong></a>
 </p>
 
 Sixty-three sittings, in watch order. Each one has notes, the crux, and the video. The path opens on the government-job talk. Travel clips are not on the path. Progress stays in the browser.
